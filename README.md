@@ -1,4 +1,4 @@
-# Ujwal-Ka-Wevbsite-is-Here
+# Ujwal-Ka-Website-is-Here
 NCERT Solutions For Class 7 History Social Science Chapter 7 Tribes, Nomads And Settled Communities
 NCERT Solutions For Class 7 History Social Science Chapter 7 Tribes, Nomads And Settled Communities
 1. Match the following: garh – khel
